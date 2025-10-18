@@ -14,6 +14,8 @@
 
 - basic dni
 - idk im pretty leniant, just dont be a butthead! i will not refrain from blocking/hiding :3
+  
+- (pls bmf! i love making new friends ^_^)
 
 ## main interests / please int !
 ### I DO NOT ASSOCIATE MYSELF WITH ANY OF THE FANDOMS OF THESE, THEY ARE JUST MY HYPERFIXATIONS ^_^
