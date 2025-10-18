@@ -1,16 +1,25 @@
-## Hi there 👋
+# I DO HAVE POWER... BUT NOT ENOUGH.
 
-<!--
-**N0MINALVALUE/N0MINALVALUE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](https://i.postimg.cc/WzyRYwwy/tumblr-d78e27696a6d7eff4685aee981e4b2d4-a24cd9b0-100.webp) ![](https://i.postimg.cc/rpNB2k9t/tumblr-89d918a302070b9bde554ec744b05724-bb309028-100.webp) ![](https://i.postimg.cc/SKkPrPpx/tumblr-4e26c2c642f1599cefa4e1fc1a4695fb-ec231d88-100.webp)
 
-Here are some ideas to get you started:
+## basic info !!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- keath/katie/coz , ask/neos , transmasc gay(nwlnw) genderfluid
+- system , taken collectively (9.2.25) and individually (6.25.25)
+- multishipper , (nonsharing) yumeshipper (might make a yume list eventually!)
+- synpath / fictionkin , therian , otherkin , multisourced introject
+- polythestic
+
+## dni
+
+- basic dni
+- idk im pretty leniant, just dont be a butthead! i will not refrain from blocking/hiding :3
+
+## main interests / please int !
+### I DO NOT ASSOCIATE MYSELF WITH ANY OF THE FANDOMS OF THESE, THEY ARE JUST MY HYPERFIXATIONS ^_^
+- roblox games (mainly phighting and forsaken)
+- glitch productions + smg4
+- object shows (mainly bfdi)
+- undertale / deltarune
+- kaaatieverse
+- (also i will note a lot of the interests on my strawpage are things that ive showed interest in at some point. a lot of them i dont really like anymore !)
