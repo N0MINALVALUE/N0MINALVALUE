@@ -4,7 +4,7 @@
 
 ## basic info !!
 
-- keath/katie/coz , ask/neos , transmasc gay(nwlnw) genderfluid
+- katie/cozmo , ask/neos , transmasc gay(nwlnw) genderfluid
 - system , taken collectively (9.2.25) and individually (6.25.25)
 - multishipper , (nonsharing) yumeshipper (might make a yume list eventually!)
 - synpath / fictionkin , therian , otherkin , multisourced introject
