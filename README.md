@@ -3,4 +3,4 @@ hello ! i'm cozmo or prototype ! i am a trans and queer artist and gamer! i am a
 links/rentry coming soon !! ^_^
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31anupaygyes2ihcqoarv7d6y4zu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=xlbr2q1md18cscavp7v9nz4nx&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
